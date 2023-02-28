@@ -17,3 +17,11 @@
 
 
 ![image](https://user-images.githubusercontent.com/114281054/221892374-97de3e4f-66b2-41fd-8f52-8359c6310f4b.png)
+
+
+Слейв:
+
+![image](https://user-images.githubusercontent.com/114281054/221908693-6835d3bd-7490-48c3-99b4-4524cb6841e2.png)
+
+
+![image](https://user-images.githubusercontent.com/114281054/221908441-f93eb065-28c2-4952-b139-dbd56b9f2404.png)
